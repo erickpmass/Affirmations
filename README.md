@@ -1,1 +1,1 @@
-# Affirmations ErickM
+# Affirmations Erick M.
